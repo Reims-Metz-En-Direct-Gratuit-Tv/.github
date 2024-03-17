@@ -1,5 +1,9 @@
-<h1>++>[DIRECT!TV] Reims - Metz En Direct Streaming Gratuit Tv 17 Mars 2024</h1>
 Reims - Metz : sur quelle chaîne voir le match de la Ligue 1 ?
+
+<strong>🔴EN DIRECT▶ [Metz - Reims En Direct Streaming](https://sports2tv.live/frenchleague/)</strong>
+
+<strong>🔴EN DIRECT▶ [Metz - Reims En Direct Streaming](https://sports2tv.live/frenchleague/)</strong>
+
 Reims - Metz en direct dimanche 17 mars 2024, 15h00 Ligue 1 Uber Eats 2023-2024, 26e journée
 Pour la 26e journée de Ligue 1, Reims reçoit ce dimanche Metz. Retrouvez toutes les informations de diffusion pour suivre ce match en direct.
 
